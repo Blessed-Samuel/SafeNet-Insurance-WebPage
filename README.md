@@ -24,4 +24,4 @@ Contributions to improve the webpage are welcome! Feel free to fork this reposit
 License:
 For any inquiries or support, please contact us at samuelalisigwe22@gmail.com.com.
 
-Thank you for visiting our insurance webpage! 🚀🔒
+Thank you for visiting this insurance webpage! 🚀🔒
